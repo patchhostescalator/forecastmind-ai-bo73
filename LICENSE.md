@@ -1,4 +1,4 @@
-# 
+# Mejor ForecastMind guía. Descarga e instala con descarga rápida y instalación en un clic — rápido, seguro y fácil de usar.
 
 
 
